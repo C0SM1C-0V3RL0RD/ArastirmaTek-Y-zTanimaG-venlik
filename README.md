@@ -1,0 +1,1 @@
+# ArastirmaTek-Y-zTanimaG-venlik
