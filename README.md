@@ -1,1 +1,1 @@
-# ArastirmaTek-Y-zTanimaG-venlik
+# ArastirmaTek-YuzTanimaGuvenlik
